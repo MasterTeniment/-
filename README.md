@@ -29,6 +29,9 @@ t.me/TenimentEduApps
 
 t.me/TenimentEdu
 
+![نظر یک کاربر یوتوب](photo_2026-10-16_05-34-31.jpg)
+
+
 ​🔗 کانال یوتیوب و اینستاگرام:
 📷 Instagram: @tenimentram
 🎬 YouTube: @teniment
